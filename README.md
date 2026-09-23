@@ -13,4 +13,8 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
--->
+-->        [You Promised]      
+                        ♫  Violent Vira ♫
+                    1:03 ──⚬──── 3:35
+                         ⇆   ◃◃   ıı   ▹▹   ↻
+    
