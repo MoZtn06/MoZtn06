@@ -1,22 +1,26 @@
-## Hi there 👋
+# Hello, I'm Mo, welcome to my profile! :wave:  
+Using my motivation, to change the technological future 👨‍💻  
+ 
+Work related:  
 
-<!--
-**MoZtn06/MoZtn06** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+## 2️⃣ Dual study program:
+  - 📖 Currently studying Software Engineering   
+  - 🏢 Employed at REWE digital  
 
-Here are some ideas to get you started:
+## 💻 Current Tech-Stack:
+- Java Beginner
+- HTML & CSS
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
-												[You Promised]      
+## 🌇 Little bit about me:
+
+
+
+
+
+
+												[You Promised]        
 											  ♫  Violent Vira ♫
 											  1:03 ──⚬──── 3:35
-										    ⇆   ◃◃   ıı   ▹▹   ↻
+										    ⇆   ◃◃   ıı   ▹▹   ↻  
 
     
