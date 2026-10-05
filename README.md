@@ -24,7 +24,7 @@ Using my motivation, to change the technological future 👨‍💻
  ### Unrelated  
  🎵 Current music top 3:
  - S.E.X Narcissist (Spanish Version) - Violent Vira
- - worst city on earth - Saber Bourne
- - SCORPIO (dreamstate) - kate the dreamer
+ - Breakdown - Amira Elfeky
+ - Be Quiet and Drive (Far Away) - Deftones
 
     
